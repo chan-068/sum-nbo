@@ -1,1 +1,1 @@
-[# sum-nbo](https://github.com/chan-068/sum-nbo/issues/1#issue-3234785852)
+https://github.com/user-attachments/assets/7b169dcb-1ed3-4899-b958-7e32ae5119ca
